@@ -1,0 +1,1 @@
+# kakineco7110.github.io
